@@ -8,6 +8,18 @@ https://youtu.be/We2J38PsTjc (Advance Excel Function with AI in python)
 
 https://drive.google.com/file/d/1_3CE6hgnjOoMVXhB2euipSZKBBGgempC/view?usp=sharing
 
+(Suppliment Classes)
+https://youtu.be/K9K9hW38ZJ8
+
+https://youtu.be/5ukZhal7o94
+
+https://youtu.be/kj3EYSxEWYc
+
+https://youtu.be/wz2sAzsbanY
+
+https://youtu.be/e_9xD4bIjz0
+______________________________
+
 (Video 3)
 
 https://drive.google.com/file/d/1jW2hflExNMiRjQzIS9bhm_zSWw5A_mCL/view?usp=sharing
